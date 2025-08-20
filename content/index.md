@@ -5,6 +5,8 @@ Welcome! This is where I store all of my typed notes for university, as well as 
 
 Obvious disclosure: use these notes at your own risk. I can guarantee neither accuracy nor neatness!
 
+[[Fall 2025 Learning Plan]]
+
 📚 **Current Courses** ([2025-Fall](/2025-Fall))
 - [Intro to Literary Criticism and Theory](/2025-Fall/ENGL300)
 - [History Methods Seminar](/2025-Fall/HIST268)
