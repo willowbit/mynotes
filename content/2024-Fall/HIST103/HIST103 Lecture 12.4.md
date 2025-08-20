@@ -1,0 +1,65 @@
+Abelard and Heloise (continued)
+- Abe goes to Monastery, Hel to a convent
+- Abe writes a letter (an autobiography, that's rare!)
+	- 12th Century age of the discovery of the individual
+- Write back and forth to each other
+	- Reveal the power of Heloise's intellect
+		- Super smart
+		- Knew languages
+		- Cutting edge style
+		- Embodies 12th century renaissance
+	- Heloise loves Abelard a lot
+		- 12th century discovery of romantic love
+		- She is the ideal nun
+		- "People see me praying, but I'm thinking about Abelard"
+			- Felt like a hypocrit
+	- Abelard writes *Sic et Non*
+		- Thesis
+		- Antithesis
+		- Synthesis
+		- Think for yourself! Use this book to do it
+		- Points out weakness of human reason
+			- Ultimately truth is unattainable by human thought
+			- Gotta look to God
+	- Abelard founds school in Paris
+		- People come from all over to hear him
+		- Adopted his *Scholastic Method*
+		- Peter Lumbard
+			- Writes book of sentences
+			- Standard text of theology for centuries
+
+- 12th Century
+	- New learning, new churchmen
+	- Broad Growth of Literacy
+	- Papal monarchy
+		- Writing used in government and the Church and day-to-day business
+		- Bishops and kings learn, merchants
+	- Where do all the people who need to read and write learn?
+	- Monestary for monks, we need our own school!
+		- Invention of the university
+			- Bologna! First one
+				- ~1100, Bepo starts teaching code of Justinian
+				- Attracted lots of students
+			- 2 Forms
+				- Associations, guilds of instructors, students come
+				- Organization of students and hiring instructors
+			- Go to uni to get a job
+			- Study the liberal arts: grammar, dialectic, rhetoric, astronomy, arithmetic, geometry, music
+			- Master these and get Master's Degree
+			- Graduate studies: law (bologna), medicine (Montpellier, Salerno), theology
+				- Trotula of Salerno
+					- Wrote a medical encyclopedia: Trotula
+					- Women's health, gynological science
+					- Trotula studied at salerno? Tought?
+			- Theology: big enchilada of degrees
+				- Paris school grew out of Abelard
+
+1000-1300
+- Important growth everywhere
+- Began with agricultural revolution
+	- Ongoing phenomenon
+	- Benefits keep growing
+	- Led to more food, better diet, longer lives, more people, trade, towns, cities, diversification of labor, expasion of europe
+	- Foundation
+- Crusades
+- Build churches

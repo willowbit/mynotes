@@ -1,0 +1,37 @@
+- Conquests of the Middle Kingdom
+	- Brought in wealth
+		- You could tax the people you conquer
+	- Trade coming in
+	- New ideas
+
+- Amenhotep IV
+	- Changed his name to Akhenaton
+	- "Amen"hotep → denotes allegiance to Amen
+	- Now an Aten worshipper
+		- First monotheist?
+	- Built a new capitol in Amarna
+		- Decorated his new house with pretty pictures
+		- More realistic, naturalistic style of art
+		- Very pretty Nefertiti bust
+- Akhenaton dies, leaves behind Nefertiti
+	- Driving force behind the religious reform
+- Tut and Amun (King Tut)
+	- Successor / son of Akhenaton
+	- Overturned Akh.'s religious reform
+	- Old order returned by Tut
+	- Only tomb that wasn't robbed
+		- Very extravagent, wealthy
+- Ramses
+	- New Kingdom reached its greatest size, power, influence
+	- Conquests
+	- Majestic builder
+	- Damaged by the Sea Peoples
+- Third Intermediate Period, 1070
+	- Egypt political greatness falls
+	- Conquired by Alexander the Great
+- Egypt ruled by masodonian greek dynasty
+	- Cleopatra
+		- Brilliant
+		- Understood the legacy of Alexander and the Pharoahs
+		- Sought to reestablish the glory of Egypt
+- Egypt conquered by the Romans

@@ -1,0 +1,78 @@
+750-1250: Worst of times
+- Baghdad
+	- Economic, cultural, artistic capitol
+- 10, 11th C.
+	- Things take a turn for the worse
+- Seljuks
+	- Wage Jahad against Byzantine
+	- Defeat them at battle of Manzikert
+		- Alp Arslan defeats Byzantines
+	- Byz. asks Pope for help, got 100,000 people, and a goose (first crusade)
+- Crusaders carve out crusader states of Islamic world
+	- Goal: capture Jerusalem
+	- First crusade 1095-99
+	- Crusades last 1095-1291
+- Saladin (d. 1193), first of counter-crusaders
+	- Battle of Hattin
+	- Safety tip: don't lead army into desert without supplies (crusaders did this)
+	- Saladin take Jerusalem, calls 3rd crusade
+- Mongols arrive
+	- Sacks Baghdad 1258
+	- Massive empire across Asia
+		- Knocked down borders, facilitated better trade
+	- End of golden age :(
+- Review
+	- 750-1250
+		- Golden age of Islam
+		- Best, worst of times
+		- Periods of political success
+			- Abasids preside over great caliphate, empire
+			- Islam reached from Cordoba to Baghdad
+			- Economic prosperity
+			- Baghdad: banking, business, industry, artistic center
+			- Period of not terrible inter-faith relations btw Islam, Christian, Jewish
+			- Cultural activity
+		- Bad
+			- Began in violence
+			- Political, religious fragmentation
+				- Fundamental split btw west Islam and Baghdad
+				- Internal violence continued off and on until end
+
+Africa
+- Has a lot of stuff
+	- Extensive natural resources
+	- Agricultural products
+	- Gold, minerals
+	- Salt
+- Human society
+	- Simple farming villages
+	- Customs develop
+		- Importance of family, family networks
+		- Rules for behavior
+	- Violation of customs → exclusion
+		- Exclusion → slavery
+	- Slavery
+		- Not comparable to American slavery
+			- Not racial
+		- Smaller part of economy
+			- Treatment wasn't as bad as American / Roman
+	- Basic structures of social / political organization
+		- Leadership → kingship
+		- Animism
+			- Veneration for natural world
+- Kingdoms in NE Africa
+	- Kingdom of Aksum
+		- Great power
+		- 3 Reasons
+			1. Location
+			2. Location
+			3. Location
+		- Location of trade, everyone is coming to Adulis
+		- Intermediated between East and Mediterranean
+		- Becomes very rich
+		- CAMELS!
+		- Capital = Aksum
+		- Aksumite coins
+			- Accepted international unit
+			- Reliable
+			- Aksum respected, wealthy

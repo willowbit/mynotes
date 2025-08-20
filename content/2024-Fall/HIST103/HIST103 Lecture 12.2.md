@@ -1,0 +1,132 @@
+Gregorian Reform
+- Complete restructuring of church and its relations with the secular world
+- Problems
+	- Ignorant priests
+	- Ignorant bishops
+	- Corruption, laxity, immorality, drunkenness
+	- Priests with wives and mistresses
+	- Popes with misresses
+- Correct these problems
+- Hard and fast rule: eliminate married priests
+	- Became too involved with non-priestly things
+	- Not fulfilling their job of having full devotion to God
+- Gregory was the staunchest advocate of Papal authority reform
+	- Rome was the city of Peter (prince of apostles)
+	- Peter (Mathew 16:18)
+	- All roads lead to Rome!
+- Most humble priest has spiritual authority over most powerful king or emporer
+	- Gregorians believed that god established political and spiritual power
+	- Spiritual has power over souls, greater of the two
+
+Pope John
+- King becomes emporer when crowned by Pope
+	- Requires support of church to maintain power
+	- Always a revolt in Germany!
+	- Essential for emporer to appoint bishops
+	- Gregory believed appointment of bishops by kings was BAD
+		- Lay Investiture
+		- Gregory seeks to restore right order!
+
+Henry IV of Germany insists right to appoint bishops (Investiture Controversy)
+- Gregory says NO
+	- Excommunicates him, can't get into heaven
+	- Loses power over people
+- Henry goes south to meet Gregory
+	- 3 days barefoot in snow begging forgiveness
+		- Gregory does
+	- People ready to depose Henry aren't happy
+		- Henry takes back power
+		- Continues to appoint Bishops, gets excommunicated again
+		- Goes down to Italy, kicks Pope out, is crowned emporer
+		- Gregory dies in exile
+		- Loses batle but wins war
+- Urban's crusade, wins Jerusalem, shows he's the rightful Pope
+	- Papal Monarchy
+	- Papacy becomes greatest government in europe
+		- Most advanced, developed, efficient
+
+Innocent III (1198-1216)
+- Became pope at 38 (pretty young)
+- Embodied all ideals and developments de jour
+- Involved actively in law and politics
+	- Intervened in europe governments
+	- Tells French king he can't divorce his wife
+		- Ok
+	- Magna Carta limits King John (WORST KING EVER) power, limiting power of the king
+		- Sides with John, oops
+		- Starts pattern of constitutional, limited government
+	- Proclaims fulness of power
+		- Has jurisdiction over everything involved with sin (everything)
+		- Enhances legal authority as supreme court, authority
+	- Fourth crusade
+	- Albigensian crusade
+		- Against city of Albi
+		- Not Catholics, heretics
+		- Tries to convert them, they refuse
+		- CRUSADE
+		- Incorporation of southern France into the North
+	- Called the Fourth Lateran Council (1215)
+		- Improve and reform life of the preisthood
+		- Transubstantiation
+			- Bread LITERALLY turns into body of Christ
+- Innocent has a dream
+	- Of a poor man building churches
+	- Saint Francis starts building churches
+	- Strips naked, I AM THE SON OF GOD
+	- Apostolic life
+	- Preaches
+	- Innocent recognizes power of idea, approves it
+	- Popularizes religion (ongoing agricultural revolution)
+
+More people, more religion, more towns, more money
+- MORE CHURCHES!
+- Notre Dame
+	- Illustrates everything
+	- Gothic cathedral
+	- Seats of bishops (more towns)
+	- Great stone churches with walls of glass
+		- Light = love of god
+		- The bible of the illiterate
+		- Flying buttresses provide support
+	- Growing wealth, growing religiosity, growing architectural self confidence
+	- Argument in stone
+
+Renaissance of the 12th century
+- Rebirth
+- Revival of ancient latin letters and Greek learning
+	- Aristotle
+	- Supported by arabs in Spain
+		- Arabic translation
+	- Greek → Arabic → Latin
+	- Wide range of STEM subjects
+	- How do we use Aristotle to help us better understand our own faith?
+- Scholasticism
+	- Christian philosphy shaped by Aristotle
+	- How to approach scholarship
+	- Anselm of Canterbury
+		- Archbishop
+		- Important transitional figure
+		- Representing traditional approaches to scholarship
+		- Wrote Why God Became Man
+			- Better understanding of Jesus
+			- New focus on human Jesus
+		- Wrote the Proof of the Existence of God
+			- God is because God is
+			- Platonic
+			- **Application of logic to faith**
+- Abelard (1079-1142) and Heloise
+	- Peter Abelard was the smartest thinker of his day
+		- Brilliant, arrogant
+		- Daring scholar
+		- Great teacher, famous
+	- Heloise: brilliant woman
+		- Uncle gave her Abelard to tutor
+		- Exchanges knowledge for room and board
+		- In love, have son
+		- Church does education
+	- Abelard wants to get married, Heloise says no
+		- Fine, but secretly so it doesnt interfere
+		- Abelard sends her to a Convent
+		- Uncle hires gang to castrate Abelard
+	- Remain apart for ten years
+	- 
