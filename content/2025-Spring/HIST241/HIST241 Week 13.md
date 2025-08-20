@@ -114,7 +114,7 @@ Leo IX
 		- Anything quid pro quo
 
 Great Schism of 1054
-- Humbert fucked it up
+- Humbert messed it up
 - We are concerned about worldy influence, clerical celibacy, simony, and PAPAL AUTHORITY
 	- Assertion of Papal primacy, PETER!
 	- 
