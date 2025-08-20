@@ -1,9 +1,6 @@
 ---
 title: Willa's Notes 📝
 ---
-
-test!
-
 Welcome! This is where I store all of my typed notes for university, as well as any study guides I make.
 
 Obvious disclosure: use these notes at your own risk. I can guarantee neither accuracy nor neatness!
